@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-i make projects well ai does 😂
+i make projects well ai does
